@@ -1,3 +1,0 @@
-# EVERSI GESTION INTELIGENTE SL
-
-Descripción de EVERSI
